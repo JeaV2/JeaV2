@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JeaV2
+- 👀 I’m interested in Gaming, reading, programming and webdesign/dev
+- 🌱 I’m currently learning Creative software development
+- 📫 How to reach me 102710@glr.nl
+- 🏳️‍⚧️ Pronouns: She/Her/They
